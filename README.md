@@ -65,7 +65,7 @@ Official Brawl Stars merchandise, including toys, posters, and accessories, some
 
 Gaming forums and subreddits like r/BrawlStars often discuss QR code releases. However, always verify the authenticity of the source before scanning.
 
-Types of Brawl Stars QR Codes and Their Benefits
+# Types of Brawl Stars QR Codes and Their Benefits
 
 1. Free Rewards QR Codes
 
