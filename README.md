@@ -139,5 +139,7 @@ Brawl Stars QR Codes are an exciting way to unlock rewards, join clubs, and acce
 
 Always stay cautious and only scan QR codes from trusted sources to avoid scams. Now that you’re equipped with this knowledge, go ahead and explore the benefits of QR codes in Brawl Stars!
 
-Related Keyword 
+# Related Keyword 
+
+
 brawl stars qr codes for gems
